@@ -1,4 +1,4 @@
-# **Kingdom of Zeon Constitution**
+# **The Kingdom of Zeon Constitution**
 
 ## Preamble
 
